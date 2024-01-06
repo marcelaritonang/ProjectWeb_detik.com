@@ -1,0 +1,6 @@
+![image](https://github.com/marcelaritonang/detik.com_WebProject/assets/62584017/dab8bd84-06cc-4c77-95cd-b0b745d0a896)![image](https://github.com/marcelaritonang/detik.com_WebProject/assets/62584017/b6f6dc1f-b020-4f3d-8ede-cb98cb0719ec)
+![image](https://github.com/marcelaritonang/detik.com_WebProject/assets/62584017/5457d296-eb88-4e8d-8adb-87901f28a5dd)
+![image](https://github.com/marcelaritonang/detik.com_WebProject/assets/62584017/1c81fd81-bd04-4a1f-9c78-77c847222372)
+![image](https://github.com/marcelaritonang/detik.com_WebProject/assets/62584017/966c3c3c-fcec-44f0-a600-c400af86de8a)
+![image](https://github.com/marcelaritonang/detik.com_WebProject/assets/62584017/207a658e-f4d7-494a-a589-1d8081557098)
+![image](https://github.com/marcelaritonang/detik.com_WebProject/assets/62584017/a419235c-3ff5-4330-8b26-93c196830f1b)
